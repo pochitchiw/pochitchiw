@@ -1,7 +1,8 @@
+딱정이의 길을 걸어가 가사 잇으신분 dm좀앙딱정 앙딱정 앙!딱정 딱정이의 길을 걸!어가~
 
+내포카 시세 0.05 개떡락 하즤만 떡락도! 락이래~~
 
-![image](https://github.com/user-attachments/assets/16b3b971-74df-4b0b-8e94-0089e19b0ab4)
-
+디코 -> mallingajamimuchim
 
 
 <!--
