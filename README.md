@@ -1,7 +1,10 @@
-딱정이의 길을 걸어가 가사 잇으신분 dm좀앙딱정 앙딱정 앙!딱정 딱정이의 길을 걸!어가~
+< memo (very important) >
 
-내포카 시세 0.05 개떡락 하즤만 떡락도! 락이래~~
+1. who should i fucking make
 
+
+
+2. 딱정이의 길을 걸어가 가사 잇으신분 dm좀앙딱정 앙딱정 앙!딱정 딱정이의 길을 걸!어가~ 
 디코 -> mallingajamimuchim
 
 
