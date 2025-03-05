@@ -1,5 +1,5 @@
-![스크린샷 2025-03-03 234606](https://github.com/user-attachments/assets/29886249-6d3d-49f6-af36-53cbc3301d4c)
-KUMAKYS mf fucking what idrewthis THEYFUCKIGNDSTOLEit kyaaaaaa 
+
+![image](https://github.com/user-attachments/assets/7622900c-8ac7-4924-a41b-60e4d193a2fe)
 
 <!--
 **LAy7LOW2/LAy7LOW2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
