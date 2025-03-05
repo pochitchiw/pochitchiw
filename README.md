@@ -1,4 +1,5 @@
-![ㄹ](https://i.ytimg.com/vi/BuvpYwwDQgM/maxresdefault.jpg)
+![스크린샷 2025-03-03 234606](https://github.com/user-attachments/assets/29886249-6d3d-49f6-af36-53cbc3301d4c)
+@Kirimichansushi mf fucking what idrewthis THEYFUCKIGNDSTOLEit
 
 <!--
 **LAy7LOW2/LAy7LOW2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
